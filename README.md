@@ -2,7 +2,6 @@
 ## 05/11/1999
 ## HSE student (1st year)
 ### FLACC faculty
-### Learn French, English, Latin 
 ### My social media contacts
  + *[VK PAGE](https://m.vk.com/dashylick)*  
  +  _[FOLLOW ME ON INSTAGRAM](https://www.instagram.com/daria_artemovna/ "Take it or leave it")_
@@ -13,7 +12,6 @@
 *Moreover, I give you my top of ~~my favorite instagrams~~ my favourite russian instagrams*
 1. (https://www.instagram.com/polinabrz)
 2. (https://www.instagram.com/daramuscat) 
-3. (https://www.instagram.com/howtogreen) 
 ## My travelling diary 
 Countries which I visited|Cities which I visited| Year
 :---:|:---:|:---:
