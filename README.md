@@ -19,7 +19,6 @@ Countries which I visited|Cities which I visited| Year
 :---:|:---:|:---:
 The USA | New York | 2013
 The UK | London | 2014
-Spain | Barcelona | 2015
 Germany | Berlin | 2016
 Austria | Vienna | 2017
 France | Paris | 2018
